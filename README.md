@@ -11,4 +11,5 @@ Ja bardzo lubię słuchać muzykę, nawet można powiedzieć, że nie mogę wyob
 * [SLAUGHTER TO PREVAIL - Bratva](https://youtu.be/iUZRLYfHEgA?si=_gwooST6HNhnfr6T)
 
 No cóż, w końcu napiszę  dość banalną rzecz, że studiuję na AGH na kierunku Informatyka i Systemy Intelegentne 😁
+
 ![](https://github.com/perakhod/perakhod.github.io/blob/main/%D0%BD%D0%BE%D0%B2%D0%BE%D0%B4%D0%B2%D0%BE%D1%80%D1%81%D0%BA%D0%B0%D1%8F-%D0%BA%D0%B8%D1%80%D0%BF%D0%B8%D1%87.gif?raw=true)
