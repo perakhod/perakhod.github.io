@@ -2,7 +2,7 @@
 
 ## Mam na imię Anton
 
-Nie wiem co mam powiedzieć o sobię)
+Nie wiem co o sobie powiedzieć))
 
 Ja bardzo lubię słuchać muzykę, nawet można powiedzieć, że nie mogę wyobraźić swojego życia bez tego. A to są przykłądy moich ulubionych piosenek
 * [Falling In Reverse - "Watch The World Burn"](https://youtu.be/qMXESlny4-I?si=Fw2A3W7XZSWOekAA)
